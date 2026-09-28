@@ -1,4 +1,6 @@
 # JarveePro Nexus
+<img width="2688" height="1152" alt="social-automation-banner-jarveepro-nexus" src="https://github.com/user-attachments/assets/71ad2e99-f4e9-4557-af87-e37760738c92" />
+
 
 ## Put Your Social Media Growth Strategy on Autopilot
 
